@@ -13,6 +13,7 @@ I create interior and spatial design concepts for homes, children's rooms and ho
 - [DW Émeraude Family Hotel & Suite](https://deawicaksana.id/2026/10/18/dw-emeraude-family-hotel-suite/)
 - [Master R's Room I](https://deawicaksana.id/2026/10/17/master-rs-room/)
 - [Maison D'Art — Where Art Meets Living](https://deawicaksana.id/maison-dart-where-art-meets-living/)
+- [Redesign Toilet SPBU — Modern Elegant & Warm Concept](https://deawicaksana.id/redesign-toilet-spbu-modern-elegant-warm-concept/)
 
 ### Find me
 
