@@ -8,7 +8,7 @@ I create interior and spatial design concepts for homes, children's rooms and ho
 
 ### Selected work
 
-- [PRIMAL 1 — Private Residence](https://deawicaksana.id/2026/10/27/primal-1-private-residence/)
+- [PRIMAL 1 — Private Residence](https://deawicaksana.id/2026/10/27/primal-1-private-residence/) — for Mr. Danylo Weiss
 - [MGL Hostel and Suite — Puerto Vallarta, México](https://deawicaksana.id/2026/10/16/mgl-hostel-and-suite-puerto-vallarta/)
 - [DW Émeraude Family Hotel & Suite](https://deawicaksana.id/2026/10/18/dw-emeraude-family-hotel-suite/)
 - [Master R's Room I](https://deawicaksana.id/2026/10/17/master-rs-room/)
