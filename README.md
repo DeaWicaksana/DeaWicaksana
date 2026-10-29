@@ -12,6 +12,7 @@ I create interior and spatial design concepts for homes, children's rooms and ho
 - [MGL Hostel and Suite — Puerto Vallarta, México](https://deawicaksana.id/2026/10/16/mgl-hostel-and-suite-puerto-vallarta/)
 - [DW Émeraude Family Hotel & Suite](https://deawicaksana.id/2026/10/18/dw-emeraude-family-hotel-suite/)
 - [Master R's Room I](https://deawicaksana.id/2026/10/17/master-rs-room/)
+- [Master R's Room II](https://github.com/DeaWicaksana/dea-wicaksana-portfolio#master-rs-room-ii)
 - [Maison D'Art — Where Art Meets Living](https://deawicaksana.id/maison-dart-where-art-meets-living/)
 - [Redesign Toilet SPBU — Modern Elegant & Warm Concept](https://deawicaksana.id/redesign-toilet-spbu-modern-elegant-warm-concept/)
 
