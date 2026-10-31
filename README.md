@@ -6,6 +6,10 @@
 Indonesian concept designer from Bali and founder of **DW Studio**.
 I create interior and spatial design concepts for homes, children's rooms and hospitality, shaped by environmental psychology.
 
+### Latest
+
+🎬 [PRIMAL 1 — Concept Art reel: Dragon vs Tyrannosaurus Rex](https://www.instagram.com/reel/DfI6B0hhyOZ/)
+
 ### Selected work
 
 - [PRIMAL 1 — Private Residence](https://deawicaksana.id/2026/10/27/primal-1-private-residence/) — for Mr. Danylo Weiss
